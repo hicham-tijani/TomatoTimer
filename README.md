@@ -16,4 +16,3 @@ https://github.com/hicham-tijani/TomatoTimer/assets/99076537/148b7881-b79f-432a-
 
 
 
-Follow me to stay updated on upcoming projects 👉🏼 https://www.linkedin.com/in/hicham-tijani-5a6315206/
